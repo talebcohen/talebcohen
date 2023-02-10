@@ -27,7 +27,8 @@ Politics
   USA:
   
       Nick Fuentes
-      Ron Paul	
+      Ron Paul
+      Aleczaender (Zoomer groyper) 	https://twitter.com/aleczaender
       
   PL:
 
