@@ -17,7 +17,7 @@ Journalists/Publicists/Commentators:
 
       Andy Ngo (social)
       Stefan Molyneux (politics, social, history)
-      Kevin MacDonald
+      Kevin MacDonald (historian, author)
 
       PL:
       Stanisław Michalkiewicz (politics, history)
