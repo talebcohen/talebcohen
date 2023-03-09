@@ -23,6 +23,9 @@ Journalists/Publicists/Commentators:
       Stanisław Michalkiewicz (politics, history)
       Piotr Korczarowski (politics)
 
+      Brazil:
+      Monark (podcast)
+
 Politics
   USA:
   
