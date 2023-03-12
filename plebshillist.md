@@ -22,6 +22,7 @@ Journalists/Publicists/Commentators:
       PL:
       Stanisław Michalkiewicz (politics, history)
       Piotr Korczarowski (politics)
+      Tomasz Sommer / Najwyższy Czas (politics)
 
       Brazil:
       Monark (podcast)
