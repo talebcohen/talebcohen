@@ -10,7 +10,7 @@ Misc.:
       Sv3rige   (banned youtuber, "activist")
       Handsome Truth (GoyimTV) (streamer, political activist)
       wykop.pl (polish reddit-like site)
-      Martin Shkreli  (finance austist)
+      Martin Shkreli  (finance autist)
       A Time For Justice ("conspiracy" youtuber)
       DistroTube (Linux, open-source)
       Techlore (Linux, open-source, security)
