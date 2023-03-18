@@ -12,6 +12,8 @@ Misc.:
       wykop.pl (polish reddit-like site)
       Martin Shkreli  (finance austist)
       A Time For Justice ("conspiracy" youtuber)
+      DistroTube (Linux, open-source)
+
   
 Journalists/Publicists/Commentators:
 
